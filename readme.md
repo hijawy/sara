@@ -2,4 +2,4 @@
 
 https://hijawy.github.io/sara/
 
-rb.gy/jzexjs
+https://rb.gy/jzexjs
